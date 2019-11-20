@@ -2,4 +2,6 @@
 
 ## Kong jeong bae is master
 
-### GH-LIM is King.
+### GH-LIM is King's slave.
+
+#### LG U+ SSG CJ
